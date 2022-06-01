@@ -15,6 +15,6 @@
 
 График к заданию 4.7 находится по ссылке: https://disk.yandex.ru/d/G86n2c_w6Vi4Pg
 
-График к заданию 4.8 находится по ссылке: https://disk.yandex.ru/i/t0D_MoBOYXasLA
+График к заданию 4.8 находится по ссылке: https://disk.yandex.ru/d/aRkq6TM_ggmOgw
 
 Первый дополнительный график к 4 юниту находится по ссылке: https://disk.yandex.ru/d/LF--SX3UVN2zPQ
